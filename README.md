@@ -1,1 +1,0 @@
-# birdmanrules.github.io
